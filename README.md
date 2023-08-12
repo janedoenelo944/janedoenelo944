@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ktygg
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...556-
+- 📫 How to reach me ...556-aer
 50dt3r4745fh354 34rsths 45h srth
 <!---
 janedoenelo944/janedoenelo944 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
