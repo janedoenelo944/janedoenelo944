@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @janedoenelo944
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...ktygg
+- 🌱 I’m currently learning ...ktygghdfzhdf
 - 💞️ I’m looking to collaborate on ... 35
 - 📫 How to reach me ...556-aer
 50dt3r4745fh354 34rsths 45h srthкеп ке
