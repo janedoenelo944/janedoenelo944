@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @janedoenelo944
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ktygghdfzhdf
-- 💞️ I’m looking to collaborate on ... 35645 56
+- 💞️ I’m looking to collaborate on ... 35645 56 rtutrure r
 - 📫 How to reach me ...556-aer65 8585rth u56uw54 jerter wh
 50dt3r4745fh354 34rsths 45h srthкеп ке.kjkhrt
 <!---ifty
